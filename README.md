@@ -1,2 +1,3 @@
 <h1 align="center">Hi 👋, I'm Lain </h1>
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+<p></p>Aku tak takut karma, tidak takut neraka
+Tak bisa dipidana, semua demi keluarga</p>
