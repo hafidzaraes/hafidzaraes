@@ -1,4 +1,4 @@
 <h1 align="center">FUCK GOVERNMENT </h1>
 <p></p>Aku tak takut karma, tidak takut neraka
 Tak bisa dipidana, semua demi keluarga</p>
-<p>-Mulyono</p>
+<p>- Mulyono Bin Widjiatno Notomiharjo</p>
